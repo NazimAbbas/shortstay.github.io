@@ -1,0 +1,1 @@
+# shortstay.github.io
